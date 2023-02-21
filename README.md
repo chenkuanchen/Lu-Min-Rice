@@ -1,1 +1,1 @@
-# Lu-Min-Rice
+# LuMin
